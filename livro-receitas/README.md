@@ -5,10 +5,3 @@
 
 
 - #### Strogonoff de frango :chicken:
-
-
-
-
-
-
-
